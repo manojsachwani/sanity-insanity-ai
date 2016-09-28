@@ -1,7 +1,7 @@
 
 #Sanity Insanity
 
-More info here -> 
+[More info here -> https://indefiniteloop.com/blog/illustration/there-is-no-why.html](https://indefiniteloop.com/blog/illustration/there-is-no-why.html)
 
 ##Licensed under Creative Commons
 
